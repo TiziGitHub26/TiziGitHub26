@@ -1,4 +1,4 @@
-Hi, I’m @Tizi! 
+Hi, I’m @Tiziana! 
 I am a bioengineer and I am interested in life science projects. In particular, I am interested in medical devices and in vitro diagnostic devices.
 - Pronouns: She / Her
 
